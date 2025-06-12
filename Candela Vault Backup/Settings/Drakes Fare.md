@@ -1,0 +1,2 @@
+The Administrative district, most of the high class business is done in this area of the city. 
+As such a majority of this areas population consists of highly successful high elves, humans, the occasional dwarf, and an assortment of their assistants. 
